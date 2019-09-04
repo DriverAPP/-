@@ -11,7 +11,7 @@
   
 ↓硬汉视频 免费成人看片神器第一把交椅↓
 
-[https://in01.icu/](https://in01.icu/?utm_source=douban&channelCode=douban)
+[https://in01.icu](https://in01.icu/?utm_source=douban&channelCode=douban)
 ------------------------------------------------------------------------------
   
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
